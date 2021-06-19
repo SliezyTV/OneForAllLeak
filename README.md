@@ -12,7 +12,7 @@ Tuto Tah les haxors
 
 
 
-Besoin d'aide ? Join : https://discord.gg/NUh7PxT26E
+Besoin d'aide ? Join : https://discord.gg/53AJ3rtHSv
 
 ⚠️ ATTENTION : JE SUIS AUCUNEMENT RESPONSABLE DE L'UTILISATION QUE VOUS FAITES AVEC CELLE-CI
 
